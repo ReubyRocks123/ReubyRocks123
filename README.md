@@ -1,1 +1,2 @@
-ill edit this later lol
+Student in High School
+testing github out, seems fun!
